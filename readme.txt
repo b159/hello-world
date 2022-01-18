@@ -1,3 +1,3 @@
 hello binit
 
-keep faith in ur self, u goona maki it.
+keep faith in ur self, u goona make it.
